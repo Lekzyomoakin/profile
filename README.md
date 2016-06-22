@@ -1,0 +1,2 @@
+# profile
+Bajepade lukman olamilekan (born November 30 1993), popularly known by his stage name Lekzy omoakin, is a Nigerian singer, rapper and songwriter. He as been rosing to fame after his chart-topping song titled "PERO SOKO" rose to critical acclaim from music critics. Lekzy omoakin was born and raised in Lagos island, a suburb of Lagos State. His music career started in 2009 while rapping among his peers in lagos island until he released "3sound knock out", a single
